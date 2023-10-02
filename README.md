@@ -75,5 +75,4 @@ Thank you for considering my application. I eagerly await the possibility of joi
 
 Sincerely,
 Mr. Susanta Roy
-# Curriculum Vitae
 
